@@ -1,1 +1,1 @@
-**Pronouns ~ ** she/her
+**Pronouns -** she/her
