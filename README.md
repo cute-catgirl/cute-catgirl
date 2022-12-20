@@ -1,3 +1,3 @@
-[![Ben's Stats](https://github-readme-stats.vercel.app/api?username=boxit379)]
+(https://github-readme-stats.vercel.app/api?username=boxit379)
 
 **Pronouns:** she/her
