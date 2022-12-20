@@ -1,2 +1,1 @@
-## Ben Moon
-**Pronouns:** she/her
+**Pronouns ~** she/her
